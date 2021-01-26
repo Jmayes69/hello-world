@@ -5,4 +5,4 @@ just a human.
 am skinny
 
 am kinda tall
-have blonde 
+have blonde hair
